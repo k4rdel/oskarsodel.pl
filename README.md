@@ -1,1 +1,1 @@
-My portfolio website - https://www.sodel.pl/
+My portfolio website - https://www.oskarsodel.pl/
